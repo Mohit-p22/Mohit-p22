@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **2321mohitparihr@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/4gS5Krp](https://bit.ly/4gS5Krp)
+- 📄 Know about my experiences [https://shorturl.at/KuXK2](https://shorturl.at/KuXK2)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
