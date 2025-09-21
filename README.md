@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **2321mohitparihr@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/4jMkdFt](https://bit.ly/4jMkdFt)
+- 📄 Know about my experiences [http://bit.ly/4gwal2t] (http://bit.ly/4gwal2t)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
